@@ -1,2 +1,2 @@
 # Techno3
-3 friends
+3 friends, to do business together
